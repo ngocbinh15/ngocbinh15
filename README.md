@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently studying
+Hi, I'm Binh. I am currently studying
 
 
 ## 🌐 Socials:
